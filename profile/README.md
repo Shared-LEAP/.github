@@ -4,8 +4,8 @@
 
 
 
-## [Check out the Sanford Burnham Prebys LEAP Program](https://sbpdiscovery.org/education/leap-program/).
+## 🌈 [Check out the Sanford Burnham Prebys LEAP Program](https://sbpdiscovery.org/education/leap-program/).
 
-## 👨‍💻 🌈 If you wish to contribute, email (jnavarrete@sbpdiscovery.org)
+## 👨‍💻 If you wish to contribute, email (jnavarrete@sbpdiscovery.org)
 
 
